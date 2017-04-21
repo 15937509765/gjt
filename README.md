@@ -1,11 +1,1 @@
-# gjt Here you can write some introduction.
-aaf
-
-
-
-
-dddddddddd
-ddddd
-ssssss
-sdf
-sdfdg
+# gjt Courage is like a muscle. We strengthen it with use.
